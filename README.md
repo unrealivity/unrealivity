@@ -1,0 +1,3 @@
+- I’m @unrealivity ~ liv ~ she/they
+- I’m currently learning gamedev
+- Reach me on discord -> .liu. 
